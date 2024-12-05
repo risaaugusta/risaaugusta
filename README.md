@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Risa. Nah, call me newbie so i would always starving for coding curiousity. Also do love foodies and unposted travelling!
+I'm Risa. Nah, call me newbie so i would always starving for coding curiousity. Foodies and traveller, anyone?!
 <!--
 **risaaugusta/risaaugusta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
