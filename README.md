@@ -1,5 +1,5 @@
 ## Hi there 👋
-Always starving for coding curiousity. Foodies and traveller, anyone?!
+Oh btw, most of my commits are in private repositories at work — so don’t worry, I’m still coding constantly 🚀
 <!--
 **risaaugusta/risaaugusta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
